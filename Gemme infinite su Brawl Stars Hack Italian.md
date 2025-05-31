@@ -4,10 +4,10 @@
 
 **Ottenere Gemme Gratuiti**
 
-## >> <a href="https://agri-servicesagency.com/getmedia/5b455e05-d1dd-4e11-9c69-a27173b82f06/br4wlstars.html">CLICCA QUI</a>
+## >> <a href="https://www.konicaminoltasa.com/getmedia/155fa87e-6d73-410a-885c-48bd750facc9/br4wlstars.html">CLICCA QUI</a>
 
 
-## >> <a href="https://agri-servicesagency.com/getmedia/5b455e05-d1dd-4e11-9c69-a27173b82f06/br4wlstars.html">CLICCA QUI</a>
+## >> <a href="https://www.konicaminoltasa.com/getmedia/155fa87e-6d73-410a-885c-48bd750facc9/br4wlstars.html">CLICCA QUI</a>
 
 
 ## **Come avere Gemme gratis su Brawl Stars**
